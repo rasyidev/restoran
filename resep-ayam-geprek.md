@@ -3,7 +3,10 @@
 ## Bahan
 - Ayam potong 2kg
 - Bawang merah dan putih 1/4 kg
-....
+- Cabe merah 1/4 kg
+- Merica bubuk 2 bks
+- Garam 1 sendok makan
+- Gula 1 sendok teh
 
 
 ## Langkah pembuatan
